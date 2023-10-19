@@ -7,4 +7,5 @@
 
 ![ecommerce3](https://github.com/alexwelz/E-Commerce/assets/93561231/9bdf0f85-47c6-43e5-ac58-a4699835131b)
 
-![ecommerce4](https://github.com/alexwelz/E-Commerce/assets/93561231/16aec3d8-beb7-42be-aee2-74a2f64d61c4)
+![ecommerce3](https://github.com/alexwelz/E-Commerce/assets/93561231/49411afc-de36-4481-966e-a1bfee7c6b51)
+
